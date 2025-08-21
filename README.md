@@ -1,16 +1,17 @@
-## Hi there 👋
 
-<!--
-**europatheducation/europatheducation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+Europath Education is a trusted consultancy helping students secure admission to top universities across Europe, Turkey, Russia, and Kazakhstan for MBBS and Master’s programs.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+We specialize in guiding students through scholarships, IMAT exam preparation, and application processes in countries like Italy, Germany, France, Spain, and beyond.
+
+Get expert one-on-one support from Vikram Kumar and qualified teachers to ensure your journey to European education is successful and stress-free.
+
+🌍 Admissions Open for 2025
+🎓 MBBS in Italy, Russia, Turkey, Kazakhstan
+🎓 Master’s in Germany, France, Spain, Austria, Netherlands & more
+🧑‍🏫 IMAT Coaching by Qualified Experts
+
+📞 Contact:
++91 7067488543 (India)
++49 15679675399 (Germany)
++39 3512672422 (Italy)
